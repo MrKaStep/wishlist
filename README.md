@@ -4,4 +4,3 @@
 * The Last of Us: Part 1 on Steam
 * Колонки для компа
 * Over-ear или on-ear наушники с норм микрофоном
-* LTX 2024 ticket
